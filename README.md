@@ -10,18 +10,18 @@ Branding:
 
 An exclusive name, symbol, logo, or picture that defines a good, service, or group and sets it apart from competitors in the market is called a brand. It includes people's general impression, perception, and reputation of a certain business or item. To stand out from the competition and establish a company's reputation within its target market, a great brand must arouse feelings in consumers and foster trust. Liberty is one of the best branding company in Kerala. Brand consulting involves providing strategic guidance and expertise to help you build a strong and differentiated brand that resonates with your target audience.
 
-Brand & Identity Creation
+Brand & Identity Creation                   
 Brand Consulting 
 
 Graphic Design: 
 
 Liberty Advertising designs the visual elements of your packaging, including artwork, typography, logos, and product information. This involves creating a cohesive design that effectively communicates your brand message and stands out on store shelves. We are a creative ad agency in Kerala. Liberty designs various brand collateral such as business cards, books, letterheads, envelopes, roll-up banners, social media posts, and other print materials that maintain consistent branding and visual identity. 
 
-Social Media Graphics
-Printing Media Graphics
-Posts and Visuals Designs
-Packaging Design
-Logo Creation
+Social Media Graphics                
+Printing Media Graphics                
+Posts and Visuals Designs                   
+Packaging Design               
+Logo Creation                
 
 Digital Marketing: 
 

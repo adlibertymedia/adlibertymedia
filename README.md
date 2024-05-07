@@ -27,13 +27,13 @@ Digital Marketing:
 
 Digital marketing, often known as online marketing, is the process that encourages firms to interact with prospective clients online and through other digital media. This includes email, social media, web-based, text, and multimedia messaging, among other marketing platforms. Liberty provides the top digital marketing services.
 
-Search engine marketing (SEM)
-Social Media Marketing (SMM)
+Search engine marketing (SEM)                 
+Social Media Marketing (SMM)            
 Search engine optimization(SEO)
 
 Website Solution:
 
 Liberty Advertising is a website design and hosting company that provides a broad range of services to companies worldwide. We specialize in creating and implementing business promotion models that are both budget-friendly and tailored to your specific needs. We update your website with the newest styles and technology. Liberty Creates the visual elements of the website, including layout, color schemes, typography, and graphics. Design an intuitive and user-friendly interface that aligns with the brand identity and enhances the user experience. 
 
-Web Design & Development
+Web Design & Development                       
 E-commerce Website Development 
